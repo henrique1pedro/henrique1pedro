@@ -8,3 +8,11 @@
 
 ### Tenho 15 Anos
 
+### minha amiga de barraco é a Dudão
+
+### insta:@pedrohsds1
+
+![](https://media.tenor.com/nqNpYfKitJoAAAAC/police-car.gif)
+
+
+
